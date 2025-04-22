@@ -1,4 +1,4 @@
-Purchase Link: https://frvps.com/bwg/
+Purchase Link: https://bandwagonhost.com/aff.php?aff=74870
 
 Tip: Use promo code BWHCGLUKKB for an extra 6.78% discount, offering an even better final price.
 
